@@ -13,4 +13,4 @@ We are a small Development Team.
 
 Support:
 
-https://discord.gg/SN38uht4Wg
+- No Support Server. New Server: 10.5.2025
